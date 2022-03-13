@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @asomekid42O
+- 👀 I’m interested in Video games and cool design
+- 🌱 I’m currently learning on the newer and basic tech
+- 💞️ I’m looking to collaborate on nothing really
+- 📫 How to reach me Baumg32177@gmail.com
